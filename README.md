@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @japo13487
 - 👀 I’m interested in sailing
-- 🌱 I’m currently learning kieö
+- 🌱 I’m currently learning kiel
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
